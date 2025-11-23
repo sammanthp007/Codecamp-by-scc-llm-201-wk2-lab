@@ -1,1 +1,0 @@
-# Codecamp-by-scc-llm-201-wk2-lab
